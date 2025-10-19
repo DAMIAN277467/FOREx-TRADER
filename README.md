@@ -1,2 +1,3 @@
-# FOREx-TRADER
+# FOREx-TRADER INVESTMENT
 cryptotradinginvestmentcompany
+
